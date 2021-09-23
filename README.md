@@ -7,7 +7,7 @@ For now, see my Nanodegree files
 
 Contact me :
 
-@AyeniTrust on Twitter
+ON LINKEDIN: https://www.linkedin.com/in/trust-a-26996b206/
 
 and
 
